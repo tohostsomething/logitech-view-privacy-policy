@@ -1,0 +1,1 @@
+# logitech-view-privacy-policy
